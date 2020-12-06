@@ -2,8 +2,8 @@
 ## succeeding and or seceeding
 ### contact
 
- 	* movickjustin@gmail.com
-	* 971.378.0744
+ 	 movickjustin@gmail.com
+	 971.378.0744
 
 ### thegitgamelog
 
