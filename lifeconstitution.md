@@ -10,6 +10,8 @@ hereby i implement this life constitution for and on behalf of me, Justin David 
 	The pursuit of happiness is acknowledgment that good things take their time and that the state of man is always changing wherein it is a checkpoint allowed by divine providence to provide contrast in and out of each state. It is obtained on occasion to provide check point towards the next one and so on and so forth.
 
 ### Eating habits
+	eat well my mother says. she had us on a balanced diet of grains, meats, vegetables, and feuits. eat fast unless on holiday.
+
 ### Bodily Cleanliness
 ### Compassionate Living Spaces
 ### Conscious Agreement
