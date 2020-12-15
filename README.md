@@ -1,5 +1,5 @@
 # justinmovickthemovie.github.io
-## Outstanding
+## Stand out
 ### contact
 	* movickjustin@gmail.com
 	* 971.378.0744
