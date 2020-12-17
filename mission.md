@@ -12,3 +12,10 @@
 * my plan and mission is to always be learning: add new degrees, certificates, awards, etc;
 
 * my mission is to be like my old mate brandon who takes one or two months out of his year to see thw world. pax ab brandon.
+
+* my mission is always to be tinkering on my github page and have made a million commits by the time i am 35.
+
+* my mission is to maintaim my possesions in good condition using money to make updates, repairs, etc. only when truly neccesary. (ive found through experience awakening to what you have got is the best policy)
+
+
+* my mission is to fire true as in create big bonfires and have my friends play cards like mafia (these are some of my most cherished memories in boy scouts); i believe in distilling cultural myths that violence is the norm. perhaps war is necessary however i resolve to be a peaceful warrior.
