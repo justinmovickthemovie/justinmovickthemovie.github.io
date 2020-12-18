@@ -1,4 +1,5 @@
 [home](justinmovickthemovie.github.io/README.md)
+
 hereby i implement this life constitution for and on behalf of me, Justin David Movick, affirming man's right to life, liberty, and the pursuit of happiness. these articles are thus:
 
 ## life
