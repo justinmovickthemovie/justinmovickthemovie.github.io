@@ -1,6 +1,3 @@
-# justinmovickthemovie.github.io
-## Stand out
-
 [contact](justinmovickthemovie.github.io/contact.md)
 
 [lifeconstitution](justinmovickthemovie.github.io/lifeconstitution.md)
