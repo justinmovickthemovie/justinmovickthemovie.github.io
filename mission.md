@@ -21,3 +21,5 @@
 
 
 * my mission is to fire true as in create big bonfires and have my friends play cards like mafia (these are some of my most cherished memories in boy scouts); i believe in distilling cultural myths that violence is the norm. perhaps war is necessary however i resolve to be a peaceful warrior.
+
+* my initial mission as of dec 18 2020 is to be in a position where i can start be grateful for the position of having lousy bills phone car insurance gym these kinds of personal investments that will allow me to get to the next level of a happy true lucky peace filled giving existence to be and not to be. this is where it is at.
