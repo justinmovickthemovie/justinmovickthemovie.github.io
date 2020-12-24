@@ -42,3 +42,9 @@
 
 * finish my book of inventions notebook and use as a resource guiding me towards the greater light every time.
 
+* my goal is to function as if my life is bland and dull trusting that in reality it is delicious and bright knowing that i have a betrothed awaiting me and that we can adopt kids together as we see fit--four or five. i seek to give myself the gift of free will through labor intellect and reasonable tax policies.
+
+* for my life mission i will warmth in relationships, affection, and preservation of acquired objects.
+
+* my mission is to not harm myself and as i see it as my intuition tells me 1. pornography 2. madturbation is a reality of lower dominion. say i am the king of masturbation and my dominion is masturbation. what foolishness is this and what of honor? the greater light has me save up this energy as it is naturally without technology and smart phones. i have one cycle per month that is to say my body needs fluid release one time per month and i can charge my body mind and spirit up  using the law od attraction and the law of reproduction. there is no acceptable folly here nor no false acceptance of slavery to tamastic satanic dominion. i will succeed and be someone of stature honor and nobility
+. failure to adhere to the chaste law created karmic ripples e.g. paranoia and success to my meats union means working out at the gym visualizing myself suceeding formyself and generations. there is much more thinks to think about rather than this topic. and it pains me at my heart for the true reason god doesnt hold me too it---its the system that causes these loops in thought to detere progress. mk ultra? real. ive seen the patents. its the 664 665, 666 am i on a wavelenghth towards a continual innocent light heart? or am i zoomed in on a non important phenomena?
